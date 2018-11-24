@@ -1,0 +1,60 @@
+<h3>A SegítőKÉSZ alapítvány támogatói</h3>
+<p>
+Alapítványunk elsődlegesen a KÉSZ Csoport tagvállalatainak támogatásainak köszönheti létezését.
+
+<h3>Így támogatóink:</h3>
+
+<p>
+<h5>KÉSZ Holding ZRt.</h5> 
+<p>A KÉSZ Csoport Magyarország egyik legnagyobb építőipari vállalatcsoportja. Sikeres nemzetközi terjeszkedése, piaci függetlensége és ágazatformáló szerepe kiemeli a hazai versenytársak köréből. </p>
+<h5>KÉSZ Építő Zrt.</h5>
+<p> Magyarország csatlakozásával a NATO Biztonsági Beruházási Programhoz (NSIP) megnyílt az út az érdeklődő hazai bejegyzésű gazdálkodó szervezetek számára, hogy pályázóként részt vegyenek a NATO beszerző szervezeteinek és tagországainak nemzetközi tender eljárásaiban.
+
+A NATO pályázati részvételre feljogosító NATO Beszállítói cím elnyerésével olyan termelő és szolgáltató cégek is megbízáshoz juthatnak a védelmi ipar területén, melyek alapvetően nem foglalkoznak katonai termékekkel és szolgáltatásokkal. A sikeresen pályázó gazdálkodó szervezetek - az anyagi nyereségén túl - értékes nemzetközi referenciát, tartós üzleti kapcsolatokat szerezhetnek olyan partnerekkel, melyek megbízhatóságát a NATO mindenkor szavatolja.
+
+A "NATO Beszállításra Alkalmas" cím előnyét felismerve, 250 közeli hazai gazdálkodó szervezet rendelkezik a NATO beszállítói képességet igazoló határozattal.
+
+Megújult NATO Beszállítói Információs Honlapunk célja, hogy segítséget nyújtson az érdeklődő cégek számára a nemzetközi pályázati lehetőségek és feltételek megismerésében, valamint kizárólagos hozzáférést biztosítson az aktuális nemzetközi NATO tenderekhez.
+
+Ismerkedjen meg a NATO Beszállítói Rendszerrel, és amennyiben úgy gondolja, hogy cégének termékei, szolgáltatásai a nemzetközi piacon is állják a versenyt, csatlakozzon hozzánk, pályázzon és nyerjen!
+
+Kérdései megválaszolására Titkárságunk munkatársai folyamatosan rendelkezésre állnak.</p>
+<h5>KÉSZ Ingatlan Kft.</h5>
+<p> A KÉSZ Ingatlan Kft. profilja az ingatlanok komplex üzemeltetése, a teljes körű létesítménygazdálkodás, amely kiterjed az épületüzemeltetési munkák minden területére, a létesítményekkel kapcsolatos valamennyi működtetési, karbantartási, fenntartási feladat ellátására, valamint a létesítmények bérbeadási és pénzügyi menedzselésére is.
+
+Missziónk, hogy megbízható tudásbázisunkkal vállaljunk teljes körű felelősséget épületeink hatékony üzemeléséért.</p>
+<h5>KÉSZ Ipari és Gyártó Kft.</h5>
+<p> A KÉSZ Ipari Gyártó Kft. a magyarországi építési piac egyik meghatározó társasága, a közép-európai térség jelentős szereplője. A legváltozatosabb referenciák fémjelzik munkánkat az ipari és egyéb beruházások terén.  Kecskeméti gyártóbázisunkon készült acélszerkezeteinkből jelentős exportot bonyolítunk.
+
+25 000 m2 alapterületű, speciális berendezésekkel felszerelt acélszerkezet-gyártó központunk Magyarország és Európa egyik legmodernebb ilyen jellegű létesítménye, gyártókapacitása meghaladja az évi 16 000 tonnát. Fő profilját a nehézipari, energetikai, építőanyag-ipari, vegyipari és környezetvédelmi létesítmények technológiai acélszerkezetei, vázszerkezetei jelentik. Emellett üzemünk megrendelés-állományának jelentős részét képezik a különböző funkciójú épületek (gyártó- és raktárcsarnokok, hangárok, sportcsarnokok, bevásárlóközpontok) acélszerkezetei.</p>
+<h5>K-ARTS Művészeti Kft.</h5>
+<p> Műtárgybérlet: alkotások bérbeadása kedvező konstrukcióban
+Tegye egyedivé környezetét kortárs alkotásokkal, béreljen műtárgyakat! Egy jól sikerült grafika, festmény, fotó, vagy szobor valódi inspiráció, élmény a lakásban, a munkakörnyezetben és vendégtérben. Kreatív tér kialakítása gazdaságos megoldással.
+Kortárs műalkotások értékesítése
+Befektetés a művészetbe. Neves kortárs művészek képeit és fémszobrait ajánljuk eladásra. Meglévő műtárgy tárunkból választhat, illetve segítünk megtalálni az elgondolásainak megfelelő alkotót, művet.
+Kiállítások rendezése, kortárs képzőművészet bemutatása; művészeti, művészettörténeti előadások, performance-ok szervezése
+Public art projektek
+Művészeti kiadványok szerkesztése és megjelentetése
+Arculattervezés, design, brandépítés</p>
+<h5>KÉSZ Consulting Kft.</h5>
+<p> Társaságunk a KÉSZ Cégcsoport sok éves projekt tapasztalata során alakította ki a számviteli, emberi erőforrás menedzselési, minőségirányítási, környezet- és munkavédelmi tanácsadási szolgáltatásait
+
+Munkánk alapja az igények gyors és megbízható, a magyar törvényi előírásoknak megfelelő kiszolgálása annak érdekében, hogy üzleti kiválóságuk szintjét megőrizzük és fejlesszük az együttműködés során. A hatékony és informatív üzleti partnerség kialakítása mellett cél, hogy egypontos kapcsolattartással segítsük partnereinket elkötelezett és lelkes szakértői bázis biztosításával</p>
+
+</p>
+
+Mivel alapítványunk nyitott, közhasznú szervezet más vállalkozások, ill. magánszemélyek számára is adott a lehetőség a szervezetünk támogatására.
+
+Az adó 1%-át 2010-től a SegítőKÉSZ Alapítványnak is lehet címezni.
+
+Köszönjük az Ön és vállalkozása támogatását!
+</p>
+<h3> Támogatóink </h3>
+<p>
+<img src="images/holding.png" alt="logo">
+<img src="images/ingatlan.png" alt="logo">
+<img src="images/go.png" alt="logo">
+<img src="images/epito.png" alt="logo">
+<img src="images/consulting.png" alt="logo">
+<img src="images/karts.png" alt="logo">
+<img src="images/ibc.png" alt="logo">
